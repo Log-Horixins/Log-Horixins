@@ -6,5 +6,4 @@ halo nama saya *****, saya berasal dari bumi, hubungi melalui telfon aja
 
 - 🔭 I’m currently working with many [organizations](https://coconut.or.id/contact)
 - 🌱 I’m currently learning new things
-- 👯 I’m looking to collaborate on Opensourced Projects
 - 📫 How to reach me: [Instagram](https://www.instagram.com/dayt_._/)
