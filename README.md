@@ -3,7 +3,7 @@
 halo nama saya *****, saya berasal dari bumi, hubungi melalui telfon aja,,
 saya disini untuk bertahan hidup 
 
-<img src="" >
+<img src="https://www.pinterest.com/pin/d4dj-hi-gif-d4dj-hi-rinku-discover-share-gifs--607282331014530603/" >
 
 - 🔭 I’m currently working with many [organizations](https://coconut.or.id/contact)
 - 🌱 I’m currently learning new things
