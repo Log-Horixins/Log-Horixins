@@ -9,4 +9,4 @@ saya disini untuk bertahan hidup
 - 🌱 I’m currently learning new things
 - 📫 How to reach me: [Instagram](https://www.instagram.com/dayt_._/)
 
-<img src="https://github.com/MishManners/MishManners/blob/master/MishManners%20Room%20animated.gif?raw=true" >
+<img src="https://github.com/MishManners/MishManners/blob/master/MishManners%20Room%20animated.gif?" >
