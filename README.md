@@ -3,7 +3,7 @@
 halo nama saya *****, saya berasal dari bumi, hubungi melalui telfon aja,,
 saya disini untuk bertahan hidup 
 
-<img src="https://gfycat.com/spitefulfocuseddogwoodclubgall" >
+<img src="https://gfycat.com/spitefulfocuseddogwoodclubgal" >
 
 - 🔭 I’m currently working with many [organizations](https://coconut.or.id/contact)
 - 🌱 I’m currently learning new things
