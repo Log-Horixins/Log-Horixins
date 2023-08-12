@@ -3,7 +3,7 @@
 halo nama saya *****, saya berasal dari bumi, hubungi melalui telfon aja,,
 saya disini untuk bertahan hidup 
 
-<img src="https://camo.githubusercontent.com/a502ed3867b08c6d9b4e1a6500b72206e91e5fce4978c6883ca34d91ab788bc7/68747470733a2f2f692e696d6775722e636f6d2f543458434e77772e676966" >
+<img src="https://www.google.com/url?sa=i&url=https%3A%2F%2Fgithub.com%2FEduardoNakatsuka&psig=AOvVaw0HVz86k0ACYAd0orwU2faD&ust=1691941790663000&source=images&cd=vfe&opi=89978449&ved=0CA4QjRxqFwoTCJC4pdDe1oADFQAAAAAdAAAAABAD" >
 
 - 🔭 I’m currently working with many [organizations](https://coconut.or.id/contact)
 - 🌱 I’m currently learning new things
